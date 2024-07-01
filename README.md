@@ -1,1 +1,2 @@
-# UMJANALOG
+# MPFANALOOGUMJ
+Universitas Muhammadiyah Jakarta
